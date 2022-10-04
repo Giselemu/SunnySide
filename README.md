@@ -1,1 +1,1 @@
-# SunnySide
+FUNNYCOLORS
